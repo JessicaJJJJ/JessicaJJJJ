@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JessicaJJJJ
+- 👀 I’m interested in language and chulture communication 
+- 🌱 I’m currently learning French 
+- 💞️ I’m looking to collaborate on spread Chinese 
+- 📫 you can reach me by email fionawangjie@foxmail.com
